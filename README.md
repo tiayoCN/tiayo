@@ -3,7 +3,7 @@
 #### Company Culture
 **Quality is Top Sky, Client is Close Friend.**
 #### Vision
-**Become Long Term Strategic Partner of Global Automatic Mechanical Equipment Manufacturers !**
+**Become A Long Term Strategic Partner of Global Automatic Mechanical Equipment Manufacturers !**
 #### Mission
 **Make Industrial Automation Better !**
 #### Concept
